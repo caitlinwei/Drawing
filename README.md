@@ -9,4 +9,4 @@ A place to share my masterpiece.
 - Traveling 
 
 # License 
-All right reserverd 
+All rights reserverd to author, and all drawings are not allowed to use without author permission : )
