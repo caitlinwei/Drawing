@@ -7,3 +7,6 @@ A place to share my masterpiece.
 - Animal 
 - People
 - Traveling 
+
+# License 
+All right reserverd 
